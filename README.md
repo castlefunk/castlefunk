@@ -6,3 +6,5 @@ i'm VERY shy, social anxiety, yeah mostly at deltarune area im scared of interac
 
 # DNI
 shadowguy / pluey kin doubles, rouxls yume doubles, yeahghgh if you are a BIG shipper of polymikes, weatherkaard, or kingkaard, please either dni or don't mention it. i really do not like those ships.
+# SOCIALS AND STUFF
+my discord is @/shadowguypluey if YOu wanna talk there but im very Nervous!
